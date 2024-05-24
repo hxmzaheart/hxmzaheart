@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @hxmzaheart
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on shutup
+- 📫 How to reach me discord(hamzao7)
+- 😄 Pronouns: only2/genders
+- ⚡ Fun fact: earth is not round
